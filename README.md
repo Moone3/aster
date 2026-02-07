@@ -9,7 +9,7 @@
 <img src="https://i.pinimg.com/originals/ad/fc/cd/adfccd6a72515359c1c283f912b67616.gif" alt="Banner" width="100%" />
 
 ## 🧠 My Focus
-- Focus kay Ms. V zirehT 😍
+- Focus kay Ms. Irene😍
 
 
 ## 📊 GitHub Stats & Trophies
